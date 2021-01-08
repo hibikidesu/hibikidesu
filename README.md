@@ -22,4 +22,6 @@
 
 ![](https://booru.hibiki.dev/static/uwu8.png)
 
+![](https://booru.hibiki.dev/static/uwu9.png)
+
 ![uwu](https://booru.hibiki.dev/static/assets/p2.png "uwu")
